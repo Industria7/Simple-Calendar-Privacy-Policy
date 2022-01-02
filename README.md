@@ -58,7 +58,7 @@ These services are designed for people of any age. I do not collect, use or tran
 
 I may update our Privacy Policy from time to time. Thus, you are advised to review this page periodically for any changes. I will notify you of any changes by posting the new Privacy Policy on this page.
 
-This policy is effective as of 2021-12-14
+This policy is effective as of 2022-01-02
 
 **Contact Us**
 
