@@ -52,7 +52,7 @@ This Service may contain links to other sites. If you click on a third-party lin
 
 **Children’s Privacy**
 
-These services are intended for people of any age. I do not knowingly collect personal information.
+These services are designed for people of any age. I do not collect, use or transmit any personal information.
 
 **Changes to This Privacy Policy**
 
